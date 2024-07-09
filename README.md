@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chikogo
+- 👋 Hi, I’m @Chiko
 - 👀 I’m interested in ...
 - 🌹💞 I’m looking to love and love girl 😍
 - 📫 How to reach me on Instagram @Chiko_r03
